@@ -1,4 +1,4 @@
-# Restauracion-Fotografica
+# Diseño Digital - DigitalesUpala
 
 Conocimientos en Restauración y Coloreo Profesional de Fotografías Antiguas - Adobe Photoshop.
 Tarjetas de Invitaciones.
